@@ -1,3 +1,4 @@
+welcome to DevOps class
 THIS IS GIT HUB PRACTICE
 
 Welcome to DevOps
