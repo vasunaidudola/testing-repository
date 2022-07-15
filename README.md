@@ -1,4 +1,5 @@
-today no class due to heavy rain
+today no class due to heavy rain.
+will meet tomorrow
 task complete
 
 d
