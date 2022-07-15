@@ -1,3 +1,4 @@
+its too cool
 today friday
 saturday and sunday no class
 today no class due to heavy rain.
