@@ -1,3 +1,4 @@
+saturday and sunday no class
 today no class due to heavy rain.
 will meet tomorrow
 task complete
