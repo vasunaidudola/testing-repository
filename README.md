@@ -1,3 +1,7 @@
+chandra sir teaching DevOps
+yes 
+no rain today
+
 one day you will win 
 
 its too cool
