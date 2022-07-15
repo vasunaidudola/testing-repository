@@ -1,3 +1,5 @@
+one day you will win 
+
 its too cool
 today friday
 saturday and sunday no class
